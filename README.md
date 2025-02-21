@@ -1,4 +1,5 @@
-# About Sandro Pasqual – Creative Brand Designer & Strategist
+# About Sandro Pasqual
+## Creative Brand Designer & Strategist
 
 **Turning Emotions into Unforgettable Brands**
 
